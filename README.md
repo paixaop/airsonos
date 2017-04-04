@@ -1,3 +1,5 @@
+[Sponsor $5](https://sponsorbee.com/paixaop/airsonos/5)
+
 AirSonos
 ========
 
